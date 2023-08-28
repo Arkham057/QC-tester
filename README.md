@@ -39,5 +39,5 @@ https://arkham0.atlassian.net/wiki/spaces/~63dd33e4790148a180953aba/pages/131150
 
 Контактная информация
 Почта-Arkham057@icloud.com
-Telegram-Arkham057
+Telegram-@Arkham057
 
